@@ -1,0 +1,1 @@
+Enfatiza el mecanismo de lesión en la región facial y en el antebrazo izquierdo, indicando su compatibilidad con los elementos vulnerantes descritos (arma de fuego usada como objeto contundente y arma cortopunzante). Incluye una breve sección de recomendaciones de seguimiento odontológico dada la fractura dentoalveolar.
